@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img width="400" height="250" src="https://i.imgur.com/3Z6WVcP.gif">
+  <img width="400" height="250" src="https://media.tenor.com/h97Vc4tTAqMAAAAM/minigames-pandemonium.gif">
 </p>
 
 <p align="center">
