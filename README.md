@@ -17,4 +17,4 @@
 
 ###### *DO NOT BE FOOLED. I know Persona 1 and 2 (Duology). I am not just a 3 - 5 fan.*
 
-Chuuya Fictionkin but honestly I could give zero shibabbles about meeting others. Hide me if you want though, do not make yourself uncomfortable, I'm just chilling here. I don't dictate your actions and your own feelings.
+Aventurine fictiokin ! Please be mindful of that. Doubles IWC.
